@@ -1,0 +1,1 @@
+Once upon a time, there was a girl named Demira who had one sister named Kiara and one brother named Shrey. One day, Kiara and Shrey were trapped inside a tower and didn't know what to do. Demira quickly arrived and saved them!
